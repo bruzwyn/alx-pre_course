@@ -1,1 +1,1 @@
-we are all in this together..
+we are all in this together.
